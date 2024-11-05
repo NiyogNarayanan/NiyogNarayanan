@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working for Dreamloob.ai<br>⚡ A passionate 🎮 Game, <br>  UI/UX, <br> and Graphics designer <br> 🎮 Game enthusiast <br> 📝 Learing coding <br> 🤖 Discord bot
+🔭 I’m currently working for Dreamloob.ai<br>⚡ A passionate <br>🎮 Game, <br> 📱 UI/UX, <br> 🖥️ Graphics designer <br> 🎮 Game enthusiast <br> 📝 Learing coding
 
 
 ## 🌐 Socials:
